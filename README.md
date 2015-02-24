@@ -30,9 +30,9 @@
 - ["JIZZED IN MY PANTS"](http://www.3331.jp/schedule/en/002052.html) @ [3331 gallery](http://www.3331.jp/en/) (Chiyoda, Tokyo) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
 
 
-##Selected Exhibitions##
+##_Selected Exhibitions_##
 ###2015###
-- ["CRYPTOBIOSIS" Special exhibition from Japan Media Arts Festival](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- ["CRYPTOBIOSIS" Japan Media Arts Festival Special exhibition](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 ###2014###
 - ["El error maquínico"](http://errormaquinico.cenart.tv/) @ [Centro Nacional de las Artes Centro Multimedia](http://cmm.cenart.gob.mx/) (Mexico City, Mexico) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - ["#BICTION"](http://bction.com/) @ Shin-Kojimachi Building (Kojimachi, Tokyo) [[Meta Vandalism #1](https://vimeo.com/106893966)]
