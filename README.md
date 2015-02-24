@@ -33,6 +33,7 @@
 ##Selected Exhibitions##
 ###2015###
 - ["CRYPTOBIOSIS" Japan Media Arts Festival Special exhibition](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+
 ###2014###
 - ["El error maquínico"](http://errormaquinico.cenart.tv/) @ [Centro Nacional de las Artes Centro Multimedia](http://cmm.cenart.gob.mx/) (Mexico City, Mexico) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - ["#BICTION"](http://bction.com/) @ Shin-Kojimachi Building (Kojimachi, Tokyo) [[Meta Vandalism #1](https://vimeo.com/106893966)]
