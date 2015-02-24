@@ -30,7 +30,7 @@
 - ["JIZZED IN MY PANTS"](http://www.3331.jp/schedule/en/002052.html) @ [3331 gallery](http://www.3331.jp/en/) (Chiyoda, Tokyo) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
 
 
-##_Selected Exhibitions_##
+##Selected Exhibitions##
 ###2015###
 - ["CRYPTOBIOSIS" Japan Media Arts Festival Special exhibition](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 ###2014###
