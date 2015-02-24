@@ -25,7 +25,7 @@
 
 
 ##Solo Exhibitions##
-###2013###
+####2013####
 - ["untitled 2"](http://118.82.80.197/news/2013/06/nakamura-keith-haring-collecti-2.html) @ [Nakamura Keith Haring Collection](http://www.nakamura-haring.com/) (Yamanashi, Japan) [untitled 2]
 - ["JIZZED IN MY PANTS"](http://www.3331.jp/schedule/en/002052.html) @ [3331 gallery](http://www.3331.jp/en/) (Chiyoda, Tokyo) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
 
@@ -37,3 +37,9 @@
 ####2014####
 - ["El error maquínico"](http://errormaquinico.cenart.tv/) @ [Centro Nacional de las Artes Centro Multimedia](http://cmm.cenart.gob.mx/) (Mexico City, Mexico) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - ["#BICTION"](http://bction.com/) @ Shin-Kojimachi Building (Kojimachi, Tokyo) [[Meta Vandalism #1](https://vimeo.com/106893966)]
+- [Sapporo International Art Festival 2014](http://sapporo-internationalartfestival.jp) @ Chi-Ka-Ho (Sapporo, Hokkaido) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
+- [Materializing ExhibitionⅡ](http://materializing.org/) @ Tokyo Art Univ. Chinretsu-kan (Ueno, Tokyo) [[gokinjo-monozukuri.org](https://vimeo.com/gokinjomonozukuri)]
+- [BAL ROBOTOV](http://balrobotov.ru/eng/) @ [Artplay](http://www.artplay.ru/) (Moscow, Russia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- [HOW Design Live Conference 2014](https://www.eiseverywhere.com/ehome/74927/149480/?&) @ [Hynes Convention Center](http://signatureboston.com/hynes.aspx) (Boston, USA) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- [3331 Art Fair](http://artfair.3331.jp/) @ [3331 Arts Chiyoda](http://www.3331.jp/) (Chiyoda-ku, Tokyo) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
+- [SIDE CORE -Expression of Public Area-](http://sidecore.net/s3/2014_expressionofpublicarea.html) @ Seibu Shibuya (Shibuya, Tokyo) [[Urbanized Typeface](https://vimeo.com/3830490)]
