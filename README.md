@@ -1,3 +1,9 @@
+[yang02](http://yang02.com/) is an artist/designer, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
+University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami. 
+
+His work are inspired from Graffiti, Street Art, Public art and so on. Then he is often trying to redeﬁne the meaning of these theme through his art work.  Mostly he uses digital media and shown in various format (installation, device, software, internet art, performance etc). In 2011, his represented artwork “SENSELESS DRAWING BOT” which is collaborated with So Kanno got the New Face Award at “15th Japan Media Art Festival”. In 2013, he has selected as a grant artist from Agency for Cultural Affairs and had stayed in Barcelona and Berlin for 1 year.
+
+
 # CV #
 * b. 4 July 1984
 * Born in Kanagwa and now based in Tokyo, Japan
