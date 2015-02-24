@@ -1,9 +1,10 @@
 ![yang02](http://yang02.org/wp-content/uploads/2010/04/dd.png)
 
-[yang02](http://yang02.com/) is an artist/designer, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
-University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami. 
+_yang02_ Artist, Desiger
 
-His work are inspired from Graffiti, Street Art, Public art and so on. Then he is often trying to redeﬁne the meaning of these theme through his art work.  Mostly he uses digital media and shown in various format (installation, device, software, internet art, performance etc). In 2011, his represented artwork “SENSELESS DRAWING BOT” which is collaborated with So Kanno got the New Face Award at “15th Japan Media Art Festival”. In 2013, he has selected as a grant artist from Agency for Cultural Affairs and had stayed in Barcelona and Berlin for 1 year.
+[yang02](http://yang02.com/) is an artist/designer, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
+University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami.
+Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/).
 
 
 # CV #
@@ -38,7 +39,7 @@ His work are inspired from Graffiti, Street Art, Public art and so on. Then he i
 - ["JIZZED IN MY PANTS"](http://www.3331.jp/schedule/en/002052.html) @ [3331 gallery](http://www.3331.jp/en/) (Tokyo, Japan) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
 
 
-##Selected Exhibitions##
+##Selected Group Show##
 ####2015####
 - ["CRYPTOBIOSIS" Japan Media Arts Festival Special Exhibition in Indonesia](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 
