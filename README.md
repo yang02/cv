@@ -1,3 +1,5 @@
+[yang02](http://yang02.org/wp-content/uploads/2010/04/dd.png)
+
 [yang02](http://yang02.com/) is an artist/designer, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
 University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami. 
 
