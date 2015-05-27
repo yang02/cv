@@ -40,6 +40,9 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2015####
+- [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #3 - Portraits]
+- [New "Colony / Island" - Art & Science of "IsLand" and Indication](http://artarea-b1.jp/archive/2015/0628705.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
+- [ART FAIR TOKYO 2015](http://artfairtokyo.com/) @ [TOKYO INTERNATIONAL FORUM](https://www.t-i-forum.co.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - ["CRYPTOBIOSIS" Japan Media Arts Festival Special Exhibition in Indonesia](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 
 ####2014####
