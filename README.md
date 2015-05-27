@@ -107,6 +107,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 - 2012 ["Radiation Typo"](https://vimeo.com/54780473) for [ARTSAT exhibition: "Physical Satellite"](http://artsat.jp/exhibition/artsat-intro/physical-satellite) (a part of [ARTSAT Project](http://artsat.jp/))
 
 ##Workshop##
+- ["New Sketching ~ Collecting Nakanoshima by smart phone & 3D printer"](http://artarea-b1.jp/archive/2015/0411718.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan) | 11.04.2015
 - “Between Sense & Senseless: Drawing Workshop with Man and Machine” @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) | 15.02.2015
 - ["Modeling with Internet" in Sapporo](https://www.facebook.com/events/924880857541630/) @ [SHARE](http://www.sharedesign.biz/) (Hokkai-do, Japan) | 04.10.2014
 - "Hacking Street with Digital Fablication Tools" @ [SCHOOL OF MACHINE, MAKING & BELIEVE](http://schoolofma.org/) (Berlin, Germany) | 11-12.08.2014
