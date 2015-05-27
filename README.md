@@ -40,9 +40,12 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2015####
+- [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [SEMI-SENSELESSS DRAWING MODULES #1 - Replicate]
+- [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #2 - Letters]
 - [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #3 - Portraits]
-- [New "Colony / Island" - Art & Science of "IsLand" and Indication](http://artarea-b1.jp/archive/2015/0628705.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
+- [ROPPONGI ART NIGHT 2015](http://www.roppongiartnight.com/2015/en/) @ [Tokyo Midtown](http://www.tokyo-midtown.com/en/) (Tokyo, Japan) [[SENSELESS DRAWING BOT](https://www.flickr.com/photos/yang02tm/sets/72157650032238554)]
 - [ART FAIR TOKYO 2015](http://artfairtokyo.com/) @ [TOKYO INTERNATIONAL FORUM](https://www.t-i-forum.co.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
+- [New "Colony / Island" - Art & Science of "IsLand" and Indication](http://artarea-b1.jp/archive/2015/0628705.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - ["CRYPTOBIOSIS" Japan Media Arts Festival Special Exhibition in Indonesia](http://jmaf-promote.jp/global/1026.html) @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 
 ####2014####
