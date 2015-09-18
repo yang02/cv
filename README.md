@@ -40,6 +40,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2015####
+- [SIDECORE -TOKYO WALKMAN-](http://sidecore.net/pressrelease/007.html) @ [hiromi yoshii roppongi](http://hiromiyoshii.com/?lang=en) (Roppongi, Tokyo) [Absent Browsing]
 - [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [SEMI-SENSELESSS DRAWING MODULES #1 - Replicate]
 - [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #2 - Letters]
 - [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #3 - Portraits]
@@ -107,6 +108,9 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 - 2012 ["Radiation Typo"](https://vimeo.com/54780473) for [ARTSAT exhibition: "Physical Satellite"](http://artsat.jp/exhibition/artsat-intro/physical-satellite) (a part of [ARTSAT Project](http://artsat.jp/))
 
 ##Workshop##
+- ["Drawing workshop with SENSELESS DRAWING BOT for kids"](http://wsc.or.jp/workshop/special/article/2578.html) @ Shibuya TOD Building (Shibuya, Tokyo) | 29,30.08.2015
+- ["Making Drawing Machines with electric toy" at True Graffiti](http://www.chigasaki-museum.jp/natsufuku/2015/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) | 02.08.2015
+- ["Drawing a replica with CMY colored ball pens" at True Graffiti](http://www.chigasaki-museum.jp/natsufuku/2015/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) | 25,26.07.2015
 - ["New Sketching ~ Collecting Nakanoshima by smart phone & 3D printer"](http://artarea-b1.jp/archive/2015/0411718.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan) | 11.04.2015
 - “Between Sense & Senseless: Drawing Workshop with Man and Machine” @ [SELASAR SUNARYO art space](http://www.selasarsunaryo.com/) (Bandung, Indonesia) | 15.02.2015
 - ["Modeling with Internet" in Sapporo](https://www.facebook.com/events/924880857541630/) @ [SHARE](http://www.sharedesign.biz/) (Hokkai-do, Japan) | 04.10.2014
@@ -114,4 +118,3 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 - ["Modeling with Internet"](https://vimeo.com/104096323) @ Tokyo Art Univ. Chinretsu-kan (Tokyo, Japan) | 26.07.2014
 - "SENSELESS DRAWING BOT Prototyping Workshop" @ [f.Labo](http://f-labo.tumblr.com/) (Gifu, Japan) | 09.06.2012
 - "SENSELESS DRAWING BOT Prototyping Workshop" @ [Mercedes-Benz Connection](http://www.mercedes-benz-connection.com/) (Tokyo, Japan) | 25.02.2012
-
