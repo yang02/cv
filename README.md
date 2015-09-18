@@ -108,7 +108,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 - 2012 ["Radiation Typo"](https://vimeo.com/54780473) for [ARTSAT exhibition: "Physical Satellite"](http://artsat.jp/exhibition/artsat-intro/physical-satellite) (a part of [ARTSAT Project](http://artsat.jp/))
 
 ##Workshop##
-- ["Drawing workshop with SENSELESS DRAWING BOT for kids"](http://wsc.or.jp/workshop/special/article/2578.html) @ Shibuya TOD Building (Shibuya, Tokyo) | 29,30.08.2015
+- ["Drawing workshop with SENSELESS DRAWING BOT for kids" at Workshop Collection 11](http://wsc.or.jp/workshop/special/article/2578.html) @ Shibuya TOD Building (Shibuya, Tokyo) | 29,30.08.2015
 - ["Making Drawing Machines with electric toy" at True Graffiti](http://www.chigasaki-museum.jp/natsufuku/2015/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) | 02.08.2015
 - ["Drawing a replica with CMY colored ball pens" at True Graffiti](http://www.chigasaki-museum.jp/natsufuku/2015/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) | 25,26.07.2015
 - ["New Sketching ~ Collecting Nakanoshima by smart phone & 3D printer"](http://artarea-b1.jp/archive/2015/0411718.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan) | 11.04.2015
