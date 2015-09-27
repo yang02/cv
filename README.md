@@ -41,8 +41,10 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 ##Selected Group Show##
 ####2015####
 - [SIDECORE -TOKYO WALKMAN-](http://sidecore.net/pressrelease/007.html) @ [hiromi yoshii roppongi](http://hiromiyoshii.com/?lang=en) (Roppongi, Tokyo) [Absent Browsing]
-- [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [SEMI-SENSELESSS DRAWING MODULES #1 - Replicate]
-- [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #2 - Letters]
+- [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [[SEMI-SENSELESSS DRAWING MODULES #1 - Replicate](https://vimeo.com/yang02/sdm1replicate)]
+- [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESSS DRAWING MODULES #2 - Letters](https://vimeo.com/yang02/sdm2letters)]
+- [ART|JOG 8](http://www.artjog.com/) @ [Taman Budaya Yogyakarta](http://www.thewindowofyogyakarta.com/) (Yogyakarta, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- [PUBLIC PROVOCATIONS](https://www.colab-gallery.com/en/34/public-provocations-VII) @ [COLAB Gallery](https://www.colab-gallery.com/en) (Weil am Rhein, Germany) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #3 - Portraits]
 - [ROPPONGI ART NIGHT 2015](http://www.roppongiartnight.com/2015/en/) @ [Tokyo Midtown](http://www.tokyo-midtown.com/en/) (Tokyo, Japan) [[SENSELESS DRAWING BOT](https://www.flickr.com/photos/yang02tm/sets/72157650032238554)]
 - [ART FAIR TOKYO 2015](http://artfairtokyo.com/) @ [TOKYO INTERNATIONAL FORUM](https://www.t-i-forum.co.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
