@@ -6,7 +6,7 @@ University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami.
 Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/).
 
 - [Facebook](http://www.facebook.com/yang02com)
-- [Twitter](http://twitter/yn02)
+- [Twitter](http://twitter.com/yn02)
 - [Vimeo](http://vimeo.com/yang02)
 - [Flickr](http://www.flickr.com/photos/yang02tm/)
 - [Instagram](http://www.instagram.com/yang02/)
