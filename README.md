@@ -40,6 +40,10 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2015####
+- ["Between the Border" Japan Media Arts Festival in Kagoshima](http://mediaarts-kagoshima.com/) @ [Reimeikan Museum](http://www.pref.kagoshima.jp/reimeikan/) (Kagoshima, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
+- [MONS 2015 Ailleurs en Folie Tokyo](http://mons2015.groundriddim.com/) @ [Maison Folie](http://www.lemanege.com/) (Mons, Belgium) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- ["Toyama Walker" Japan Media Arts Festival in Toyama](http://www.mediaarts-toyama.com/) @ [TOYAMA GLASS ART MUSEUM](http://toyama-glass-art-museum.jp/) (Toyama, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
+- ["TAMABI Quality" - Tama Art University 80th Anniversary](http://www.tamabi.ac.jp/80th/event/quality.htm) @ [Tama Art University](http://www.tamabi.ac.jp/) (Tokyo, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - [SIDECORE -TOKYO WALKMAN-](http://sidecore.net/pressrelease/007.html) @ [hiromi yoshii roppongi](http://hiromiyoshii.com/?lang=en) (Roppongi, Tokyo) [Absent Browsing]
 - [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [[SEMI-SENSELESSS DRAWING MODULES #1 - Replicate](https://vimeo.com/yang02/sdm1replicate)]
 - [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESSS DRAWING MODULES #2 - Letters](https://vimeo.com/yang02/sdm2letters)]
