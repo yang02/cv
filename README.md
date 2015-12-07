@@ -17,10 +17,13 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ##Education##
-[Tama Art University](http://www.tamabi.ac.jp/index_j.htm), Information Design Field, Design Course Master Program
+M.F.A. Information Design Field, Design Course, Master Program of Tama Art University, 
+B.F.A. Department of Information Design, Tama Art University
 
 
 ##Prizes##
+- 2015 [Takamatsu Media Art Festival](www.maf-takamatsu.jp) : Award of Excellence [SEMI-SENSELESS DRAWING MODULES - Trilogy]
+- 2015 [TDC Anual Award 2016](http://tdctokyo.org/jpn/?awardlist=2016) : RGB Prize (RGB Category) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 - 2014 [YouFab Global Creative Awards 2014](http://www.youfab.info/index.html) : Finalists ([gokinjo-monozukuri.org](http://gokinjo-monozukuri.org)) [[Captured Desire](https://vimeo.com/104220818)]
 - 2011 [[15th] Japan Media Arts Festival : New Face Award (Art Division)](http://archive.j-mediaarts.jp/festival/2011/art/works/15a_senseless_drawing_bot/) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - 2010 [TDC Anual Award 2010](http://tdctokyo.org/jpn/?awardlist=2010) : Winning Work (RGB Category) [[Urbanized Typeface](https://vimeo.com/3830490)]
@@ -45,6 +48,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2015####
+- [Takamatsu Media Art Festival "The Medium of the Spirit"](http://mediaarts-kagoshima.com/) @ [Hiunkaku, Takamatsu Casttle](http://www.takamatsujyo.com/hiunkaku.htm) (Kagawa, Japan) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 - ["Between the Border" Japan Media Arts Festival in Kagoshima](http://mediaarts-kagoshima.com/) @ [Reimeikan Museum](http://www.pref.kagoshima.jp/reimeikan/) (Kagoshima, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - [MONS 2015 Ailleurs en Folie Tokyo](http://mons2015.groundriddim.com/) @ [Maison Folie](http://www.lemanege.com/) (Mons, Belgium) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - ["Toyama Walker" Japan Media Arts Festival in Toyama](http://www.mediaarts-toyama.com/) @ [TOYAMA GLASS ART MUSEUM](http://toyama-glass-art-museum.jp/) (Toyama, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
