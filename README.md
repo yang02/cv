@@ -13,7 +13,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 # CV #
 * b. 4 July 1984
-* Born in Kanagwa and now based in Tokyo/Kyoto, Japan
+* Born in Kanagwa and now live and work in Tokyo/Kyoto, Japan
 
 
 ##Education##
