@@ -17,8 +17,8 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ##Education##
-* M.F.A. Information Design Field, Design Course, Master Program of Tama Art University
-* B.F.A. Department of Information Design, Tama Art University
+* 2009 M.F.A. Information Design Field, Design Course, Master Program of Tama Art University
+* 2007 B.F.A. Department of Information Design, Tama Art University
 
 
 ##Prizes##
