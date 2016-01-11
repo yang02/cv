@@ -1,5 +1,5 @@
 ![yang02](http://yang02.com/wp-content/uploads/9999/01/yang02-1024x768.png)
-Photo by Takuya Matsumi
+Photo by [Takuya Matsumi](http://qqiixiipp.hanzaiboyz.org/)
 
 [yang02](http://yang02.com/) (Yamaguchi Takahiro) is an artist/designer, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
 University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami.
@@ -13,7 +13,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 # CV #
 * b. 4 July 1984
-* Born in Kanagwa and now based in Tokyo, Japan
+* Born in Kanagwa and now based in Tokyo/Kyoto, Japan
 
 
 ##Education##
