@@ -50,6 +50,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 ####2016####
 - [AMIT 2016 | Art, Media and I, Tokyo](http://amit.jp/) @ [Maru-Cube, Marunouchi Building](http://www.marunouchi.com/top/marubiru) (Tokyo, Japan) [[Cargo Cult](https://vimeo.com/138714751)]
 - [The 21st ifva Awards – Media Art Category Finalist Exhibition](http://www.ifva.com/?p=11590&lang=en) @ [Pao Galleries - Hong Kong Arts Center](http://www.hkac.org.hk/en/gallery_pao.php) (Hong Kong, China) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
+
 ####2015####
 - [Takamatsu Media Art Festival "The Medium of the Spirit"](http://mediaarts-kagoshima.com/) @ [Hiunkaku, Takamatsu Casttle](http://www.takamatsujyo.com/hiunkaku.htm) (Kagawa, Japan) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 - ["Between the Border" Japan Media Arts Festival in Kagoshima](http://mediaarts-kagoshima.com/) @ [Reimeikan Museum](http://www.pref.kagoshima.jp/reimeikan/) (Kagoshima, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
