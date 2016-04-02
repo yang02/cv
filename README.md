@@ -48,6 +48,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ##Selected Group Show##
 ####2016####
+- ["into the phantom villages" Japan Media Arts Festiva in Aomori](http://www.mediaarts-aomori.com/) @ [Aomori Museum fo Art](http://www.aomori-museum.jp/en/) (Aomori, Japan) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - [AMIT 2016 | Art, Media and I, Tokyo](http://amit.jp/) @ [Maru-Cube, Marunouchi Building](http://www.marunouchi.com/top/marubiru) (Tokyo, Japan) [[Cargo Cult](https://vimeo.com/138714751)]
 - [The 21st ifva Awards – Media Art Category Finalist Exhibition](http://www.ifva.com/?p=11590&lang=en) @ [Pao Galleries - Hong Kong Arts Center](http://www.hkac.org.hk/en/gallery_pao.php) (Hong Kong, China) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 
