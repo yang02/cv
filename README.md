@@ -43,8 +43,10 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 ##Solo Exhibitions##
 ####2016####
 - [Examples](http://www.clearedition.jp/web/2016-sept-yang02-2882.html) @ [CLEAR EDITION & GALLERY](http://www.clearedition.jp/web/) (Tokyo, Japan)
+
 ####2015####
 - [True Graffiti](http://www.chigasaki-museum.jp/exhi/2015-0719-0830tenrankai/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) [[SEMI-SENSELESSS DRAWING MODULES #1 - Replicate](https://vimeo.com/yang02/sdm1replicate), [Cargo Cult](https://vimeo.com/138714751)]
+
 ####2013####
 - ["untitled 2"](http://118.82.80.197/news/2013/06/nakamura-keith-haring-collecti-2.html) @ [Nakamura Keith Haring Collection](http://www.nakamura-haring.com/) (Yamanashi, Japan) [untitled 2]
 - ["JIZZED IN MY PANTS"](http://www.3331.jp/schedule/en/002052.html) @ [3331 gallery](http://www.3331.jp/en/) (Tokyo, Japan) [[SENSELESS DRAWING BOT #2](https://vimeo.com/70402127)]
