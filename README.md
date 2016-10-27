@@ -131,7 +131,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ##Commition Works##
-- 2016 ["Legend of Ibuki Island Drift"](http://setouchi-artfest.jp/en/artworks-artists/artworks/ibukijima/177.html) for [Setouchi Triennale](http://setouchi-artfest.jp/, Collaborate with [contact Gonzo](http://contactgonzo.blogspot.jp/)
+- 2016 ["Legend of Ibuki Island Drift"](http://setouchi-artfest.jp/en/artworks-artists/artworks/ibukijima/177.html) for [Setouchi Triennale](http://setouchi-artfest.jp/), Collaborate with [contact Gonzo](http://contactgonzo.blogspot.jp/)
 - 2014 ["Ganbare Gonzo ~Kunisaki Cooking Densetsu~"](http://xn--o1q83mb5ph0l.jp/g07/) for [Kunisaki Art Festival](http://kunisaki.asia/), Collaborate with [contact Gonzo](http://contactgonzo.blogspot.jp/)
 - 2013 ["gonzocam"](http://gonzocam.tumblr.com/) for [YCAM 10th Anniversary](http://10th.ycam.jp/), [contact Gonzo performance project](http://10th.ycam.jp/term1/524/) comissioned by [YCAM](http://ycam.jp/)
 - 2012 ["Radiation Typo"](https://vimeo.com/54780473) for [ARTSAT exhibition: "Physical Satellite"](http://artsat.jp/exhibition/artsat-intro/physical-satellite) (a part of [ARTSAT Project](http://artsat.jp/))
