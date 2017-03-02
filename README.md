@@ -53,6 +53,11 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ##Selected Group Show##
+####2017####
+- [Condition Report: ESCAPE from the SEA](http://jfac.jp/en/culture/events/condition-report-escape-from-the-sea-1702240423/) @ National Visual Arts Gallery (Kuala Lumpur, Malaysia) [[Cargo Cult](https://vimeo.com/138714751)]
+- [The Great Ordinary](http://www.no-ma.jp/the_great_ordinary) @ [Borderless Art Museum NO-MA](http://www.no-ma.jp/english.html) (Omi-Hachiman, Shiga)
+- [Vanishing Mesh](http://www.ycam.jp/en/events/2017/vanishing-mesh/) @ [Yamaguchi Center for Arts and Media[YCAM]](http://www.ycam.jp/en/) (Yamaguchi, Yamagchi) [Avatars]
+
 ####2016####
 - [PERFORMATIVE PHASE](http://blanka.co.jp/exhibition/2016/08/) @ [gallery+cafe blanka](http://www.blanka.co.jp/) (Aichi, Japan) [Examples]
 - [AICHI TRIENNALE 2016](http://aichitriennale.jp/english/) @ [Aichi Arts Center 8F](http://www.aac.pref.aichi.jp/english/) (Aichi, Japan) [[Asemic Languages](https://vimeo.com/181188289)]
