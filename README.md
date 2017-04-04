@@ -55,7 +55,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ## Selected Group Show ##
 #### 2017 ####
-- [New "Colony / Island"3 -into beyond myself](http://artarea-b1.jp/archive/2017/04021098.php) @ 
+- [New "Colony / Island"3 - into beyond myself](http://artarea-b1.jp/archive/2017/04021098.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - [SIDE CORE –RO・SEN・ZU– Exhibiton – OUTLINE](https://goo.gl/mfl5Tg) @ [GALLERY TRAX](http://www.eps4.comlink.ne.jp/~trax/main/top.html) (Yamanashi, Japan) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - [Condition Report: ESCAPE from the SEA](http://jfac.jp/en/culture/events/condition-report-escape-from-the-sea-1702240423/) @ National Visual Arts Gallery (Kuala Lumpur, Malaysia) [[Cargo Cult](https://vimeo.com/138714751)]
 - [The Great Ordinary](http://www.no-ma.jp/the_great_ordinary) @ [Borderless Art Museum NO-MA](http://www.no-ma.jp/english.html) (Omi-Hachiman, Shiga) [[About a Theory of Graffiti](https://vimeo.com/207605268)]
