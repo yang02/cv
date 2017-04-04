@@ -22,6 +22,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ## Prizes ##
+- 2017 [[20th] Japan Media Arts Festival](http://festival.j-mediaarts.jp/download/20jmaf_jury_selections_jp.pdf) : Jury Recommended (Interactive Art Category) [[Asemic Languages](https://vimeo.com/181188289)]
 - 2015 [Takamatsu Media Art Festival](www.maf-takamatsu.jp) : Award of Excellence [SEMI-SENSELESS DRAWING MODULES - Trilogy]
 - 2015 [TDC Anual Award 2016](http://tdctokyo.org/jpn/?awardlist=2016) : RGB Prize (RGB Category) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 - 2014 [YouFab Global Creative Awards 2014](http://www.youfab.info/index.html) : Finalists ([gokinjo-monozukuri.org](http://gokinjo-monozukuri.org)) [[Captured Desire](https://vimeo.com/104220818)]
@@ -53,10 +54,12 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ## Selected Group Show ##
-####2017####
+#### 2017 ####
+- [New "Colony / Island"3 -into beyond myself](http://artarea-b1.jp/archive/2017/04021098.php) @ 
+- [SIDE CORE –RO・SEN・ZU– Exhibiton – OUTLINE](https://goo.gl/mfl5Tg) @ [GALLERY TRAX](http://www.eps4.comlink.ne.jp/~trax/main/top.html) (Yamanashi, Japan) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - [Condition Report: ESCAPE from the SEA](http://jfac.jp/en/culture/events/condition-report-escape-from-the-sea-1702240423/) @ National Visual Arts Gallery (Kuala Lumpur, Malaysia) [[Cargo Cult](https://vimeo.com/138714751)]
-- [The Great Ordinary](http://www.no-ma.jp/the_great_ordinary) @ [Borderless Art Museum NO-MA](http://www.no-ma.jp/english.html) (Omi-Hachiman, Shiga)
-- [Vanishing Mesh](http://www.ycam.jp/en/events/2017/vanishing-mesh/) @ [Yamaguchi Center for Arts and Media[YCAM]](http://www.ycam.jp/en/) (Yamaguchi, Yamagchi) [Avatars]
+- [The Great Ordinary](http://www.no-ma.jp/the_great_ordinary) @ [Borderless Art Museum NO-MA](http://www.no-ma.jp/english.html) (Omi-Hachiman, Shiga) [[About a Theory of Graffiti](https://vimeo.com/207605268)]
+- [Vanishing Mesh](http://www.ycam.jp/en/events/2017/vanishing-mesh/) @ [Yamaguchi Center for Arts and Media[YCAM]](http://www.ycam.jp/en/) (Yamaguchi, Japan) [[Avatars](https://vimeo.com/207075804)]
 
 #### 2016 ####
 - [PERFORMATIVE PHASE](http://blanka.co.jp/exhibition/2016/08/) @ [gallery+cafe blanka](http://www.blanka.co.jp/) (Aichi, Japan) [Examples]
