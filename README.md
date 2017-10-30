@@ -55,6 +55,12 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 ## Selected Group Show ##
 #### 2017 ####
+- [Artificial Intelligence Art and Aesthetics Exhibition](http://aloalo.co.jp/ai/exhibition/) @ [Okinawa Institute of Science and Technology Graduate University (OIST)](https://www.oist.jp/) (Okinawa, Japan) [[About a Theory of Graffiti](https://vimeo.com/207605268)]
+- [Cargo Cult in KENPOKU](http://kenpoku-art.jp/event/7415/) @ [Umezu-kaikan](http://www.kanko-hitachiota.com/page/page000038.html) (Ibaraki, Japan) [[Cargo Cult](https://vimeo.com/138714751)]
+- [Ars Electronica 2017](- [SCHOOL OF THE FUTURE – Out of Control powered by Ars Electronica](http://www.tokyo-midtown.com/jp/event/designtouch/) @ [Atrium, Tokyo Midtown](http://www.tokyo-midtown.com/jp/) (Tokyo, Japan) [[Asemic Languages](https://vimeo.com/181188289)]
+- [Ars Electronica 2017](https://www.aec.at/ai/en/) @ [POSTCITY](https://www.aec.at/news/) (Linz, Austria) [[Asemic Languages](https://vimeo.com/181188289)]
+- [KWA LA FESTIVAL](https://kwalafestival.re/) @ [Cité des Arts](http://www.citedesarts.re/) (Réunion, French) [[Urbanized Typeface](https://vimeo.com/3830490)]
+- [Art and the City: Graffiti in the Internet Age](http://electromuseum.ru/event/iskusstvo-i-gorod-graffiti-v-epohu-interneta/) @ [Electro Museum](http://electromuseum.ru/) (Moscow, Russia) [[The Invisible Bombing](https://vimeo.com/2221615)]
 - [New "Colony / Island"3 - into beyond myself](http://artarea-b1.jp/archive/2017/04021098.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - [SIDE CORE –RO・SEN・ZU– Exhibiton – OUTLINE](https://goo.gl/mfl5Tg) @ [GALLERY TRAX](http://www.eps4.comlink.ne.jp/~trax/main/top.html) (Yamanashi, Japan) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
 - [Condition Report: ESCAPE from the SEA](http://jfac.jp/en/culture/events/condition-report-escape-from-the-sea-1702240423/) @ National Visual Arts Gallery (Kuala Lumpur, Malaysia) [[Cargo Cult](https://vimeo.com/138714751)]
