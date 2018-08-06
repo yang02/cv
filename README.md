@@ -22,14 +22,15 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ## Prizes ##
-- 2017 [[20th] Japan Media Arts Festival](http://festival.j-mediaarts.jp/download/20jmaf_jury_selections_jp.pdf) : Jury Recommended (Interactive Art Category) [[Asemic Languages](https://vimeo.com/181188289)]
+- 2018 [[21th] Japan Media Arts Festival](http://festival.j-mediaarts.jp/en/) : Excellence Award (Art Division) [[Avatars](https://vimeo.com/207075804)]
+- 2017 [[20th] Japan Media Arts Festival](http://archive.j-mediaarts.jp/festival/2017/art/works/20aj_asemic_languages/) : Jury Recommended (Art Division) [[Asemic Languages](https://vimeo.com/181188289)]
 - 2015 [Takamatsu Media Art Festival](www.maf-takamatsu.jp) : Award of Excellence [SEMI-SENSELESS DRAWING MODULES - Trilogy]
 - 2015 [TDC Anual Award 2016](http://tdctokyo.org/jpn/?awardlist=2016) : RGB Prize (RGB Category) [[SEMI-SENSELESS DRAWING MODULES #2 - Letters](https://vimeo.com/138557097)]
 - 2014 [YouFab Global Creative Awards 2014](http://www.youfab.info/index.html) : Finalists ([gokinjo-monozukuri.org](http://gokinjo-monozukuri.org)) [[Captured Desire](https://vimeo.com/104220818)]
 - 2011 [[15th] Japan Media Arts Festival : New Face Award (Art Division)](http://archive.j-mediaarts.jp/festival/2011/art/works/15a_senseless_drawing_bot/) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - 2010 [TDC Anual Award 2010](http://tdctokyo.org/jpn/?awardlist=2010) : Winning Work (RGB Category) [[Urbanized Typeface](https://vimeo.com/3830490)]
 - 2009 [Asia Digital Art Award](http://www.adaa.jp/2009/) : Winning Work (Interactive Category) [[Urbanized Typeface](https://vimeo.com/3830490)]
-- 2009 [[15th] Student CG Contest](http://www.cgarts.or.jp//scg/2009/) : Jury Recommended (Interactive Art Category) [[Urbanized Typeface](https://vimeo.com/3830490)]
+- 2009 [[15th] Student CG Contest](http://www.cgarts.or.jp//scg/2009/) : Jury Recommended (Art Division) [[Urbanized Typeface](https://vimeo.com/3830490)]
 - 2009 [[13th] Japan Media Arts Festival](http://archive.j-mediaarts.jp/festival/2009/art/#selections) : Jury Recommended (Interactive Art Category) [[Urbanized Typeface](https://vimeo.com/3830490)]
 - 2007 [CONCURRED YOKOHAMA WALL DESIGN AWARD](http://www.morimoto-real.co.jp/design/concurred/) : Silver Prize [[This is not a Graffiti](http://yang02.org/works/this_is_not_a_graffiti.html)]
 - 2006 [[13th] Student CG Contest](http://www.cgarts.or.jp//scg/2009/) : nominated (Interactive Category) [[Sound Calligraphy](http://yang02.org/works/os_ver1.html)]
@@ -54,6 +55,13 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 
 
 ## Selected Group Show ##
+#### 2018 ####
+- [[21th] Japan Media Arts Festival](http://archive.j-mediaarts.jp/festival/2018/) @ [THE NATIONAL ART CENTER](http://www.nact.jp/) (Tokyo, Japan) [[Avatars](https://vimeo.com/207075804)]
+- [TRACE](http://newmediagallery.ca/current-exhibition-7-2/) @ [New Media Gallery](http://newmediagallery.ca/) (Vancouver, Canada) [[SEMI-SENSELESSS DRAWING MODULES #3 - Portraits](https://vimeo.com/138326120)]
+- [Graffiti in the Internet Age](https://streetartmuseum.ru/graffiti-ponosov-exhibition/) @ [Street Art Museum](https://streetartmuseum.ru/) (Saint Petersburg, Russia) [[The Invisible Bombing](https://vimeo.com/2221615)]
+- [ARTISTES & ROBOTS](https://www.grandpalais.fr/en/event/artists-robots) @ [Grand Palais](https://www.grandpalais.fr/fr) (Paris, France) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
+- [ATELIAIR by NIKE AIR](http://nike.jp/sportswear/air-max/) @ [ATELIAIR (6-19-21 Jingu-mae, Shibuya-ku)] (Tokyo, Japan) [[A device for "Graffiti"](http://vimeo.com/25623727)]
+- [20th DOMANI: “The Art of Tomorrow”](http://domani-ten.com/) @ [THE NATIONAL ART CENTER](http://www.nact.jp/) (Tokyo, Japan) [[Modern Spectator](https://vimeo.com/260179295)]
 #### 2017 ####
 - [Artificial Intelligence Art and Aesthetics Exhibition](http://aloalo.co.jp/ai/exhibition/) @ [Okinawa Institute of Science and Technology Graduate University (OIST)](https://www.oist.jp/) (Okinawa, Japan) [[About a Theory of Graffiti](https://vimeo.com/207605268)]
 - [Cargo Cult in KENPOKU](http://kenpoku-art.jp/event/7415/) @ [Umezu-kaikan](http://www.kanko-hitachiota.com/page/page000038.html) (Ibaraki, Japan) [[Cargo Cult](https://vimeo.com/138714751)]
@@ -85,7 +93,7 @@ Member of [TYMOTE](http://tymote.jp/) and [Grandbase Inc.](http://grandbase.jp/)
 - [Motion Science](http://www.2121designsight.jp/en/program/motion_science/) @ [21_21 DESIGN SIGHT](http://www.2121designsight.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESSS DRAWING MODULES #2 - Letters](https://vimeo.com/yang02/sdm2letters)]
 - [ART|JOG 8](http://www.artjog.com/) @ [Taman Budaya Yogyakarta](http://www.thewindowofyogyakarta.com/) (Yogyakarta, Indonesia) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - [PUBLIC PROVOCATIONS](https://www.colab-gallery.com/en/34/public-provocations-VII) @ [COLAB Gallery](https://www.colab-gallery.com/en) (Weil am Rhein, Germany) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
-- [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [SEMI-SENSELESSS DRAWING MODULES #3 - Portraits]
+- [ICC OPEN SPACE 2015](http://www.ntticc.or.jp/Exhibition/2015/Openspace2015/index.html) @ [NTT Inter Communication Center](http://www.ntticc.or.jp/index_e.html) (Tokyo, Japan) [[SEMI-SENSELESSS DRAWING MODULES #3 - Portraits](https://vimeo.com/138326120)]
 - [ROPPONGI ART NIGHT 2015](http://www.roppongiartnight.com/2015/en/) @ [Tokyo Midtown](http://www.tokyo-midtown.com/en/) (Tokyo, Japan) [[SENSELESS DRAWING BOT](https://www.flickr.com/photos/yang02tm/sets/72157650032238554)]
 - [ART FAIR TOKYO 2015](http://artfairtokyo.com/) @ [TOKYO INTERNATIONAL FORUM](https://www.t-i-forum.co.jp/en/) (Tokyo, Japan) [[SEMI-SENSELESS DRAWING MODULES](https://vimeo.com/102675809)]
 - [New "Colony / Island" - Art & Science of "IsLand" and Indication](http://artarea-b1.jp/archive/2015/0628705.php) @ [Art Area B1](http://artarea-b1.jp/) (Osaka, Japan)
