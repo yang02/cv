@@ -1,4 +1,4 @@
-![yang02](https://www.dropbox.com/s/3vxl79w4owsehy8/yang02_portrait1280px.jpg)
+![yang02](http://yang02.com/portrait.jpg)
 Photo by [Takuya Matsumi](http://qqiixiipp.hanzaiboyz.org/)
 
 [yang02](http://yang02.com/) (Yamaguchi Takahiro) is an artist, born in 1984 Kanagawa, Japan. 2009 completed graduate school of Tama Art
