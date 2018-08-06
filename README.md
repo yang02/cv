@@ -61,6 +61,7 @@ University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami.
 - [ARTISTES & ROBOTS](https://www.grandpalais.fr/en/event/artists-robots) @ [Grand Palais](https://www.grandpalais.fr/fr) (Paris, France) [[SENSELESS DRAWING BOT](https://vimeo.com/30780208)]
 - [ATELIAIR by NIKE AIR](http://nike.jp/sportswear/air-max/) @ [ATELIAIR (6-19-21 Jingu-mae, Shibuya-ku)] (Tokyo, Japan) [[A device for "Graffiti"](http://vimeo.com/25623727)]
 - [20th DOMANI: “The Art of Tomorrow”](http://domani-ten.com/) @ [THE NATIONAL ART CENTER](http://www.nact.jp/) (Tokyo, Japan) [[Modern Spectator](https://vimeo.com/260179295)]
+
 #### 2017 ####
 - [Artificial Intelligence Art and Aesthetics Exhibition](http://aloalo.co.jp/ai/exhibition/) @ [Okinawa Institute of Science and Technology Graduate University (OIST)](https://www.oist.jp/) (Okinawa, Japan) [[About a Theory of Graffiti](https://vimeo.com/207605268)]
 - [Cargo Cult in KENPOKU](http://kenpoku-art.jp/event/7415/) @ [Umezu-kaikan](http://www.kanko-hitachiota.com/page/page000038.html) (Ibaraki, Japan) [[Cargo Cult](https://vimeo.com/138714751)]
@@ -158,6 +159,8 @@ University. Studied Media Art under Prof. Akihiro Kubota and Prof. Seiko Mikami.
 - 2012 ["Radiation Typo"](https://vimeo.com/54780473) for [ARTSAT exhibition: "Physical Satellite"](http://artsat.jp/exhibition/artsat-intro/physical-satellite) (a part of [ARTSAT Project](http://artsat.jp/))
 
 ## Workshop ##
+- [Sensory Collage -Infant Art- Workshop](http://yang02.com/archive/chikaku-collage-tamaroku/) @ [Tamarokuto Science Center](https://www.tamarokuto.or.jp/)（Tokyo, Japan）| 20.05.2018
+- [Cargo Cult in KENPOKU WS](http://kenpoku-art.jp/event/7415/) @ 6 plases in Ibaraki (Ibaraki, Japan) | 2017
 - [LOCUS FABER TSUKUROKKA presents Cargo Cult Workshop](https://goo.gl/cCvSyT) @ Art Lab Aichi Otsu-bashi (Nagoya, Aichi) | 16,17.04.2016
 - ["Drawing workshop with SENSELESS DRAWING BOT for kids" at Workshop Collection 11](http://wsc.or.jp/workshop/special/article/2578.html) @ Shibuya TOD Building (Shibuya, Tokyo) | 29,30.08.2015
 - ["Making Drawing Machines with electric toy" at True Graffiti](http://www.chigasaki-museum.jp/natsufuku/2015/) @ [Chigasaki City Museum of Art](http://www.chigasaki-museum.jp/) (Kanagawa, Japan) | 02.08.2015
